@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu shenanigans like never before with jujutsu shenanigans secret Script, the #1 Script. Includes custom skins and no cooldown for
 
 
 
